@@ -1,1 +1,1 @@
-Descripcion del proyecto por Gerardo
+Conflicto resuelto por sharbel y gerardo 
